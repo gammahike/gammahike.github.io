@@ -1,1 +1,1 @@
-# gammahike.github.io
+# www.gammahike.com
